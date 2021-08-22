@@ -1,0 +1,11 @@
+- 2 tazas de galleta, tipo maría molidas
+- 1 cucharadita de canela en polvo
+- 1 barra de mantequila, (90gr) derretida
+- 1 taza de fambruesas
+- 1/2 tazas de agua
+- 1/4 tazas de azúcar
+- 1 1/2 tazas de azúcar glass
+- 3 paquetes de queso crema, a temperatura ambiente
+- 4 huevos
+- 1 cucharadita de sal
+- 1 cucharadita de vainilla 
